@@ -16,7 +16,7 @@ camwhite982@gmail.com
 <h2>😄 Pronouns: </h2>
 He/Him
 
-<b>⚡Fun fact: </b
+<b>⚡Fun fact: </b>
 I have been working in the marketing industry for 10 years now!
 
 
