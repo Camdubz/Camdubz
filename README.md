@@ -10,6 +10,9 @@
 💬 Ask me about my many marketing projects and personal research projects!<br>
 </ul>
 
+<h2>🌐 My portfolio: </h2>
+https://portfolio-624b5.web.app/
+
 <h2>📫 How to reach me: </h2>
 camwhite982@gmail.com
 
